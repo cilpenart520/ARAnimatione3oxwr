@@ -1,1 +1,0 @@
-# ARAnimatione3oxwr
